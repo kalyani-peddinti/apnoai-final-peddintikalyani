@@ -1,4 +1,4 @@
-**ApnoMart Q2 2026 Executive Dashboard**
+<img width="420" height="179" alt="image" src="https://github.com/user-attachments/assets/5742a7aa-60fc-4cb7-b08d-2246263ef5ba" />**ApnoMart Q2 2026 Executive Dashboard**
 
 **Analyst:** Peddinti Kalyani 
 
